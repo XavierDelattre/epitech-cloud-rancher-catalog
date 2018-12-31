@@ -1,1 +1,0 @@
-MediaWIKI yeah \o/
